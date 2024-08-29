@@ -3,8 +3,8 @@ Murilo Pimentel Bezerra
 Email: murilopbezerra2009@gmail.com
 Endereço: Rua Arnaldo Posso 415 Ouro Verde 2
 
-                             Meus Objetivos
+                                                Meus Objetivos
 
   Meu objetivo nessa empresa é me comprometer a ela e ganhar experiência,
   me entregarei de cabeça nesse trabalho, quero me tornar um ótimo 
-  trabalhador 
+  trabalhador e aceitarei qualquer 
